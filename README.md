@@ -1,3 +1,0 @@
-## Hi! My name is Enrique, but you can... 
-
-# Call me Silva ;)
